@@ -1,1 +1,1 @@
-This repository has created for learn of two friends nigger! 🐵🐵
+This repository has created for learn of two nigger friends! 🐵🐵
